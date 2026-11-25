@@ -49,4 +49,4 @@ To begin my career in the IT industry, gain practical experience, improve my tec
 ## 📫 Connect With Me
 
 - GitHub: [rajsoftwork08-tech](https://github.com/rajsoftwork08-tech)
-- LinkedIn: Add your LinkedIn profile link
+- LinkedIn: www.linkedin.com/in/raj-suthar-865b8332a
